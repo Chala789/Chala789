@@ -1,0 +1,1 @@
+A storie in the bible on the book of revelation that states the king on the throne having book on his right hand and the sheep (christ) as haded coming to get the book from his right hand. finally the 24 elders and some creatures worshiping both the sheep and the king.
